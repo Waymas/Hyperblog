@@ -7,3 +7,5 @@ carita feliz :)
 Creado por yo mero xd
 
 Incluye cosas nuevas
+
+Disponible para todoss
